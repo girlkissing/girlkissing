@@ -4,13 +4,10 @@
     take note that even if you are in my dni i will
 <p align="center">
 </p>
-
 <p align="center"> 
         confront you if i dislike your behaviour,
-         or just drop you.
 <p align="center">
 </p>
-
 <p align="center"> 
          or just drop you.
 <p align="center">
