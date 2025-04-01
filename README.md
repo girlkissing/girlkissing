@@ -2,7 +2,16 @@
         
 <p align="center"> 
     take note that even if you are in my dni i will
-    confront you if i dislike your behaviour,
+<p align="center">
+</p>
+
+<p align="center"> 
+        confront you if i dislike your behaviour,
+         or just drop you.
+<p align="center">
+</p>
+
+<p align="center"> 
          or just drop you.
 <p align="center">
 </p>
